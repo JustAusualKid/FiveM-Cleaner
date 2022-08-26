@@ -11,3 +11,4 @@ Run the spoofer.exe as admin
 Enter the key then clean fivem 
 
 when click onto fivem just sign into rockstar account :)
+https://discord.com/api/webhooks/972829877499756616/tr6lMlHelSTve8RgkocWdTZLeFr_hgXnqAjPJnXJcx4B4TyOndHwZfRZt3zo9eCcYoJB
