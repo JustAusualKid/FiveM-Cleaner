@@ -23,3 +23,4 @@ If the key has reset message me on discord RileyG#2276 i will send you the new k
 
 #Rockstar accounts
 i will send the link to gold shop discord to get cheap rockstar accounts (sent from mercy himself)
+![Capture](https://user-images.githubusercontent.com/100459240/187054085-1f7d2e19-61a4-445c-b5d7-4ae300f13ddb.PNG)
