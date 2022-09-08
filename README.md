@@ -2,11 +2,19 @@
 
 updated The Key :) all in working order
 
-
+I Also sell Rockstar accounts on a low price, they're fivem only accounts
+ and can only be logged in through fivem if interested.. Discord-  RileyG#2276
+ 
+ 
+ 
+$5 per account, 
+$10 for 2, 
+5-10 accounts-$3 each 
+20 accounts $1.75 each
 
 Cleans files for fivem and can get back into a server within 2 minutes.....
 
-The Shit spoofer Mercy is selling and charging for $35 
+The spoofer Mercy is selling and charging for $35 
 
 This is the Key you will need to enter R3nSowL98sm2715q
 
