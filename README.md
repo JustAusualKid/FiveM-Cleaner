@@ -16,8 +16,9 @@ I Also sell Rockstar accounts on a low price, they're fivem only accounts and ca
 
 
 before i ran the Cleaner 
-![Capture2](https://user-images.githubusercontent.com/100459240/189078800-aab8fe43-b228-41dd-9f3e-c020bbe7ab92.PNG)
 
+
+![Capture2](https://user-images.githubusercontent.com/100459240/189078800-aab8fe43-b228-41dd-9f3e-c020bbe7ab92.PNG)
 
 
 
