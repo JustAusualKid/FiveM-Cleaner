@@ -7,8 +7,8 @@ Step One - Discord
 4. If FiveM is present there, remove it.
 
 Step Two - Spoofer
-1. Open the Spoofer & enter the key presented to you.
-2. Run the Spoofer (should only take about 3-5 seconds)
+1. Open the Spoofer 
+2. Run the Spoofer (only takes about 1-3 seconds)
 
 Step Three - Steam
 1. Log into a new steam account.
