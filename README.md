@@ -7,7 +7,7 @@ so here have this you dont need to pay $35 or even log in with a key like you di
 
 all that can be done within 1 minute to get back into the server
  
-
+if you need to clean (unlink) your xbox account run the xboxCleaner.bat
 
 I Also sell Rockstar accounts on a low price, they're fivem only accounts and can only be logged in through fivem if interested.. Discord- RileyG#2276
 
