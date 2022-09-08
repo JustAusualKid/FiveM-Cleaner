@@ -2,7 +2,7 @@
 Cleaner was Converted from Bat to exe 
 
 Well Mercy Banned My Account in the end for his spoofer lol..
-so here have this you dont need to pay $35 or even log in with a key like you did with mercys spoofer this does the exactly the same thing.. all you need to do is run it open fivem and sign into your new rockstar account..
+so here have this you dont need to pay $35 or even log in with a key like you did with mercys spoofer this does the exact same thing.. all you need to do is run it open fivem and sign into your new rockstar account..
 
 
 all that can be done within 1 minute to get back into the server
