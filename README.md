@@ -16,6 +16,7 @@ I Also sell Rockstar accounts on a low price, they're fivem only accounts and ca
 
 ![Captureban](https://user-images.githubusercontent.com/100459240/189098464-4465624c-5ecc-4884-8b63-20d29f068e07.PNG)
 
+![Capturebanned](https://user-images.githubusercontent.com/100459240/189111550-80fe3fd3-544c-49e2-8ed2-4f51d219e34a.PNG)
 
 
 
@@ -24,3 +25,4 @@ I Also sell Rockstar accounts on a low price, they're fivem only accounts and ca
 After using the Cleaner
 
 ![Capture4](https://user-images.githubusercontent.com/100459240/189079127-e9c00c19-6b71-4475-87e8-642582c24466.PNG)
+![afterban](https://user-images.githubusercontent.com/100459240/189111590-bb4d4866-6833-477e-8c72-aa92154aa024.PNG)
