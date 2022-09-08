@@ -6,7 +6,7 @@ I Also sell Rockstar accounts on a low price, they're fivem only accounts
  and can only be logged in through fivem if interested.. Discord-  RileyG#2276
  
  
- 
+#Rockstar accounts
 $5 per account, 
 $10 for 2, 
 5-10 accounts-$3 each 
@@ -32,8 +32,7 @@ when click onto fivem just sign into rockstar account :)
 
 
 
-#Rockstar accounts
-i will send the link to gold shop discord to get cheap rockstar accounts (sent from mercy himself)
+
 ![Capture](https://user-images.githubusercontent.com/100459240/187054085-1f7d2e19-61a4-445c-b5d7-4ae300f13ddb.PNG)
 ![Capture2](https://user-images.githubusercontent.com/100459240/187054129-102f318d-767b-4d4a-8838-7fd816b7f198.PNG)
 ![Capture3](https://user-images.githubusercontent.com/100459240/187054130-6ba10968-8035-4887-8b61-e4abe28a376c.PNG)
